@@ -118,7 +118,7 @@ If you wish to contribute to this project, feel free to submit a pull request or
 
 ## Contact
 
-For any queries or support, contact [@mesh213](https://t.me/mesh213) on Telegram. 
+For any queries or support, contact [@mrdealer712](https://t.me/mrdealer712) on Telegram. 
 
 ---
 
